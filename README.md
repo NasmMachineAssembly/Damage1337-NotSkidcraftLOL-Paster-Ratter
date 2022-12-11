@@ -37,7 +37,7 @@ BUT, you will **NEVER** see "false positives" like these, because these aren't f
 
 **AND NOW THE ICING ON TOP**
 
-Here's the first piece of evidence. **NotSkidCraftLol** is also a paster and a ratter involved with Damage. This below is a picture taken in a vc where damage is screensharing the webcam of one of his victims. Faces have been covered to protect the victim.
+Here's the first piece of evidence. This below is a picture taken in a vc where damage is screensharing the webcam of one of his victims. Faces have been covered to protect the victim.
 ![alt text](https://media.discordapp.net/attachments/991891661296775218/1051572446911807618/image.png?width=854&height=683)
 
 Here's a pic from one of his released sources where he accidentally leaked his rat lol.
@@ -48,4 +48,6 @@ oh and when I confronted him about his shit being pasted, he called me fat :c an
 Feel free to zoom in and you can see that the program that is logging these users is called, "Safecall". oh and this feet btw lol he's only 12.
 
 here's hard evidence he's logging people lol, he's been sending some of his friends this picture:
+here's the video version: https://cdn.discordapp.com/attachments/991891661296775218/1051580406601883739/Snapchat-304110165.mp4
+
 ![alt text](https://media.discordapp.net/attachments/1050423008688357396/1050567094527336591/Snapchat-1478730779.jpg)
