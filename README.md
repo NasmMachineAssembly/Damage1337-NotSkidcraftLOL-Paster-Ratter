@@ -1,6 +1,8 @@
 # Damage1337-Paster-Ratter
 Damage1337's free internal called **Safecall** is a rat and logger, here's all the proof!
 
+Damage#1337 (1021086600270204959)
+
 
 Damage1337 has recently came out with a new forntite internal called Safecall.
 With some simple reversing and talking to his friends, I've come to the conclusion that he is logging users. 
