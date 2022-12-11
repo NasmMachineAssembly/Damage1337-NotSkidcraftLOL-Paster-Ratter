@@ -9,6 +9,8 @@ With some simple reversing and talking to his friends, I've come to the conclusi
 
 Let's start off with the evidence that it's a paste, which doesn't matter because this is free, right?
 
+btw **NotSkidcraftLOL IS NOT INVOLVED WITH SAFECALL, HE WAS JUST A SPECTATOR. HE DIDN'T RAT OR DEVELOP SAFECALL.** 
+
 **• Paster Proof**
 
 He's blatantly using **Rits-Amazing-Fortnite-Internal** which can also be found on GitHub, as well as **Face Injector V2 by Kankoshev**. 
