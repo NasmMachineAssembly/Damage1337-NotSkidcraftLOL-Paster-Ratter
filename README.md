@@ -43,6 +43,12 @@ You're seeing the .pdb because the dumbass put the rat as a byte array inside th
 
 **AND NOW THE ICING ON TOP**
 
+Here's the first piece of evidence. **NotSkidCraftLol** is also a paster and a ratter involved with Damage. This below is a picture taken in a vc where damage is screensharing the webcam of one of his victims. Faces have been covered to protect the victim.
+![alt text](https://media.discordapp.net/attachments/991891661296775218/1051572446911807618/image.png?width=854&height=683)
+
+Here's a pic from one of his released sources where he accidentally leaked his rat lol.
+![alt text](https://media.discordapp.net/attachments/986426418625925170/1051571615558799440/image.png)
+
 oh and when I confronted him about his shit being pasted, he called me fat :c and i'd like him to know that i've taken great offense to that !!!!
 
 Feel free to zoom in and you can see that the program that is logging these users is called, "Safecall". oh and this feet btw lol he's only 12.
