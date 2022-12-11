@@ -41,7 +41,9 @@ You're seeing the .pdb because the dumbass put the rat as a byte array inside th
 
 **AND NOW THE ICING ON TOP**
 
-here's hard evidence he's logging people lol, he's been sending some of his friends this pictures:
-![alt text](https://media.discordapp.net/attachments/1050423008688357396/1050567094527336591/Snapchat-1478730779.jpg)
+oh and when I confronted him about his shit being pasted, he called me fat :c and i'd like him to know that i've taken great offense to that !!!!
 
 Feel free to zoom in and you can see that the program that is logging these users is called, "Safecall". oh and this feet btw lol he's only 12.
+
+here's hard evidence he's logging people lol, he's been sending some of his friends this picture:
+![alt text](https://media.discordapp.net/attachments/1050423008688357396/1050567094527336591/Snapchat-1478730779.jpg)
