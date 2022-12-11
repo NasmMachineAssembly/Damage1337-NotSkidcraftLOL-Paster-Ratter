@@ -51,3 +51,10 @@ here's hard evidence he's logging people lol, he's been sending some of his frie
 here's the video version: https://cdn.discordapp.com/attachments/991891661296775218/1051580406601883739/Snapchat-304110165.mp4
 
 ![alt text](https://media.discordapp.net/attachments/1050423008688357396/1050567094527336591/Snapchat-1478730779.jpg)
+
+Pics of him and Tev flexing how they ratted children.
+https://media.discordapp.net/attachments/1042675794683625473/1051579672955211897/image.png
+https://media.discordapp.net/attachments/1042675794683625473/1051579673542406315/image.png?width=610&height=683
+https://media.discordapp.net/attachments/1042675794683625473/1051579674129604759/image.png?width=700&height=683
+https://media.discordapp.net/attachments/1042675794683625473/1051579674586796113/image.png
+https://media.discordapp.net/attachments/1042675794683625473/1051579675123654666/image.png
