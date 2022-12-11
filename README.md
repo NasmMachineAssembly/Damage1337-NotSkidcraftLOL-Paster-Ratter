@@ -35,12 +35,6 @@ BUT, you will **NEVER** see "false positives" like these, because these aren't f
 
 ![alt text](https://media.discordapp.net/attachments/939080938590203924/1050611790175809596/image.png?width=500&height=300)
 
-Now let's look at reversal, I dumped his injectors exe and just from looking at the strings you can see that uh.
-
-![alt text](https://media.discordapp.net/attachments/939080938590203924/1050618057275482192/image.png?width=500&height=300)
-
-You're seeing the .pdb because the dumbass put the rat as a byte array inside the executable, wait till he learns about how compilers work lmao.
-
 **AND NOW THE ICING ON TOP**
 
 Here's the first piece of evidence. **NotSkidCraftLol** is also a paster and a ratter involved with Damage. This below is a picture taken in a vc where damage is screensharing the webcam of one of his victims. Faces have been covered to protect the victim.
